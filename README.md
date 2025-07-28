@@ -1,6 +1,6 @@
 SSH Brute coded z668
 
-Download: https://u.pcloud.link/publink/show?code=XZvHEL5ZvQbRaRp7II49krj1HhQCpHa37zEX
+Download: https://krakenfiles.com/view/HanHwM88F9/file.html
 
 Password: sshbrute
 
